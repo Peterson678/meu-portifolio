@@ -1,2 +1,2 @@
 # meu-portifolio
-Sou estudante dedicado, busco sempre aprender e evoluir. Tenho interesse geografia, historia, matematica, capoeira e escrita reflexiva. Participo bastante de trabalhos escolares, gosto de desafios e valorizo diciplina e esforço . Procuro desenvolver habilidades academicas e pessoais de forma constante 
+Sou estudante dedicado, busco sempre aprender e evoluir. Tenho interesse geografia, historia, matematica, capoeira e escrita reflexiva. Participo bastante de trabalhos escolares, gosto de desafios e valorizo diciplina e esforço . Procuro desenvolver habilidades academicas e pessoais de forma constante. Trabalho com Freelancer alguns finais de semana como monitor de festas infantis  
